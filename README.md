@@ -24,6 +24,9 @@
 
 **CIRCUIT DIAGRAM:**
 
+![1000099456](https://github.com/user-attachments/assets/b4bb4486-2b50-4498-9c5a-98cbe9960691)
+
+
 
 
 
